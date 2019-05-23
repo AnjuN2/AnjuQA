@@ -1,3 +1,2 @@
 # AnjuQA
-Going to Cancun beach!
-Should be fun
+Going to New York!!!
